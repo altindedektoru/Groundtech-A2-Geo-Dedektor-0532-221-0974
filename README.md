@@ -4,5 +4,5 @@
  Hem Dedektör Hem Rezivite Hem Yer Altı Görüntüleme Sistemi! En Uygun Fiyat Garantisi Sizlerle
 Kolay kullanım, anında 3D görüntü, kablosuz teknoloji. Profesyonel sonuçlar, kullanıcı dostu sistem.
 Stoklar sınırlı, fiyat bilgisi ve detaylı anlatım için hemen ara
-
+define alan tarama cihazı (https://dedektor360.com/kategori/define-dedektorleri)
 ![WhatsApp Görsel 2025-05-16 saat 17 05 13_2256d985](https://github.com/user-attachments/assets/4847ea34-2c37-4603-aa0a-894535d11974) 
